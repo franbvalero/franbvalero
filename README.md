@@ -1,4 +1,4 @@
-### Hi, I'm FRAN 👋
+### Hi, I'm Fran Valero 👋
 
 I'm a Applied Scientist working at Amazon Science. Former at Deezer Research.
 
